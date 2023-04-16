@@ -1,1 +1,1 @@
-мяу мяу нигга
+meow meow nigga
